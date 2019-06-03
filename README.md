@@ -1,1 +1,1 @@
-# koster.ninja# www-ekoster-com
+# www-ekoster-com
